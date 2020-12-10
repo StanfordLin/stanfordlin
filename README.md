@@ -12,7 +12,7 @@ You can download the app on [iOS here](https://apps.apple.com/us/app/id152473896
 
 - Launching [UA Local 170's app for members](https://ualocal170.com), a mobile app for internal members
 - Working on a startup project of my own
-- Seeking internships for Winter (Jan-Apr) ❄ and Summer (May-Aug) ☀ 2021
+- Seeking internships for Summer (May-Aug) ☀ 2021
 
 ## Get in touch
 
